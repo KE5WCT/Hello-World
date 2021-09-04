@@ -11,3 +11,4 @@ Graduated DeVry University, March 2001, BSIT.
 Retired Qwest Communications July 2006.
 Employed March 2008 (part time), Rockethound Computer Services.
 Retired fully May 2008 with heart problems.
+Now living in Elgin Texas
